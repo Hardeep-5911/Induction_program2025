@@ -1,15 +1,4 @@
-# Induction Program 2025 🚀
-
-## Table of Contents
-- [About Me](#about-me)
-- [Program Overview](#program-overview)
-- [Day 1 Highlights](#day-1-highlights)
-- [My Reflections](#my-reflections)
-- [Gallery](#gallery)
-- [Acknowledgments](#acknowledgments)
-- [Get in Touch](#get-in-touch)
-
----
+# Induction Program 2025🚀
 
 ## About Me
 👋 Hi, I'm **Hardeep Singh**, a passionate learner pursuing a BTech in **Computer Science and Engineering** at [GNDEC, Ludhiana](https://www.gndec.ac.in/).
@@ -35,13 +24,13 @@ The **Induction Program 2025** is designed to welcome new students, foster a sen
 ### 🎤 10:00 AM Onwards | Inaugural Ceremony
 - Registration at the auditorium entrance.
 - Inspirational speeches:
-    - **Mr. Harsimarn Singh**: Insights on college achievements.
+    - **Mr. Harsimarn Singh**: Insights on college & its achievements.
     - **Dr. Harpreet Kaur Grewal (HoD, Applied Science)**: Introduction to our department.
-    - **Dr. Sehijpal Singh (Principal)**: National & international achievements.
+    - **Dr. Sehijpal Singh (Principal)**: Highlighted the college’s excellence, global ties, and notable achievements.
     - **Ravinder Garg (Chief Engineer, Municipal Corporation, Ludhiana)**: Guest of honor.
-    - **Rakesh Kumar (Alumni, Batch 1991)**: Alumni perspective.
-- Felicitation of guests.
-- Finance talk by **Shri Ravender Garg**.
+    - **Rakesh Kumar (Alumni, Batch 1991)**: Insipiration speech to new young 1st yesr students.
+- Felicitation of Guests.
+- Finance talk by Finance expert
 - Lunch followed by department visit & mentorship program.
     - Explored labs, classrooms, and learned about college clubs and placement opportunities.
 
@@ -60,26 +49,15 @@ The **Induction Program 2025** is designed to welcome new students, foster a sen
 - Inspired by alumni and faculty stories.
 - Motivated to join college clubs and aim for great placements.
 
----
+## Day 2 Highlights ✨
 
-## Gallery 📸
-- [Morning Blessings](https://github.com/user-attachments/assets/e11ea20f-4690-4d8e-9d6f-c8da320dd7f0)
-- [Inaugural Ceremony](https://github.com/user-attachments/assets/b18be240-b252-4dd7-988c-b3dcbb761ca5)
+###  🕣 9:30 AM - 10:30 AM
+* There was a **English Proficiency Test**
+  * It went well.
 
----
-
-## Acknowledgments 🙏
-- GNDEC Faculty & Staff for their guidance.
-- Our distinguished guests for their motivation and insights.
-- Fellow students for their enthusiasm and support.
-
----
-
-## Get in Touch
-For queries, collaboration, or feedback:
-- [LinkedIn](https://www.linkedin.com/in/hardeep-singh/)
-- [GNDEC Website](https://www.gndec.ac.in/)
-
-> _“Together, we begin. Together, we achieve.”_
-
----
+###  🕣 10:30 AM - 11:30 AM
+* There was a **Mathematics Proficiency Test**
+  * It went well.
+###  🕣 11:30 AM - 01:00 PM
+* It was a break for students
+###  🕣 01:00 PM - 02:00 PM
