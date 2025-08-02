@@ -76,5 +76,5 @@ The **Induction Program 2025** is designed to welcome new students, foster a sen
 
 ## My Reflections 📝
 
->" My day gone very joyful and I learn alot of things."
->_Hardeep Singh_
+> " My day gone very joyful and I learn alot of things."
+> _– Hardeep Singh_
