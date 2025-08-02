@@ -28,7 +28,7 @@ The **Induction Program 2025** is designed to welcome new students, foster a sen
     - **Dr. Harpreet Kaur Grewal (HoD, Applied Science)**: Introduction to our department.
     - **Dr. Sehijpal Singh (Principal)**: Highlighted the college’s excellence, global ties, and notable achievements.
     - **Ravinder Garg (Chief Engineer, Municipal Corporation, Ludhiana)**: Guest of honor.
-    - **Rakesh Kumar (Alumni, Batch 1991)**: Insipiration speech to new young 1st yesr students.
+    - **Rakesh Kumar (Alumni, Batch 1991)**: Insipiration speech to new young 1st year students.
 - Felicitation of Guests.
 - Finance talk by Finance expert
 - Lunch followed by department visit & mentorship program.
@@ -53,11 +53,28 @@ The **Induction Program 2025** is designed to welcome new students, foster a sen
 
 ###  🕣 9:30 AM - 10:30 AM
 * There was a **English Proficiency Test**
-  * It went well.
+    * It went well.
 
 ###  🕣 10:30 AM - 11:30 AM
 * There was a **Mathematics Proficiency Test**
-  * It went well.
+    * It went well.
 ###  🕣 11:30 AM - 01:00 PM
 * It was a break for students
 ###  🕣 01:00 PM - 02:00 PM
+* There was a big event by India largest scholarship platform **[Buddy4study](https://www.buddy4study.com/)**
+    * It was hosted by **Mr. Manshish Kumar & Mr. Manoj Kumar** representive from Buddy4study.
+    * They told us about their platform that how they help needy people in india  for their study and startups.
+    * They told us about **[Satya Scholarship Program 2025](https://www.buddy4study.com/page/satya-scholarship-program)**
+    * They also informed us about the scholarship application process and encouraged all of us to apply, urging as many students as possible to take advantage of it.
+###  🕣 02:00 PM - 03:00 PM
+* There was a expert lecture by **Dr. Arashdeep Singh** on **Food: A Pivotal Role in Student's Overall Wellness**
+    * He told us about the importance of food in our student life .
+    * We should eat healthy food so we can enjoy our engineering .
+    * He told us about common food myths and debunked them all.
+    * He also told us how to check which food is good for our body & which is not.
+    * It was very interesting and educational lecture.
+
+## My Reflections 📝
+
+>" My day gone very joyful and I learn alot of things."
+>_Hardeep Singh_
