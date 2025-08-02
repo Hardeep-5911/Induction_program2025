@@ -76,5 +76,20 @@ The **Induction Program 2025** is designed to welcome new students, foster a sen
 
 ## My Reflections 📝
 
-> " My day gone very joyful and I learn alot of things."
+> " My day gone very joyful and I learn alot of things."<br>
 > _– Hardeep Singh_
+
+## Day 3 Highlights ✨
+
+###  🕣 9:00 AM - 11:00 AM
+ * Today we have a great expert lecture by **Dr. Jaswinder singh 'Jaswins'**.
+    * Today was very excited lecture for me as I have watching Dr. JAswinder singh videos from so long time.
+    * Today I get chance to watch him on stage live .
+    * He taught us so many interesting things about Math & Science.
+    * He taught us nature is full of mysteries , science & math.
+    * He taught us about GOD and MATH.
+    * We learn so many new things
+    * He is so much great personality .
+###  🕣 11:00 AM - 01:00 PM   
+* Today we have expert lecture by **Dr. Priya Darshani Madam** on **Universal Human Values**
+   * Mam told us about 
