@@ -26,8 +26,8 @@ The **Induction Program 2025** is designed to welcome new students, foster a sen
 - Inspirational speeches:
     - **Mr. Harsimarn Singh**: Insights on college & its achievements.
     - **Dr. Harpreet Kaur Grewal (HoD, Applied Science)**: Introduction to our department.
-    - **Dr. Sehijpal Singh (Principal)**: Highlighted the college’s excellence, global ties, and notable achievements.
-    - **Ravinder Garg (Chief Engineer, Municipal Corporation, Ludhiana)**: Guest of honor.
+    - **Dr. Sehijpal Singh (Principal)**: Highlighted the college’s excellence, global ties, and notable achievements on its **70th year of excelence** .
+    - **Ravinder Garg (Chief Engineer, Municipal Corporation, Ludhiana)** (Chief Guest): Motivate student to dream big, work hard, and never give up on their goals, reminding them that success is built on perseverance, passion, and a positive mindset.
     - **Rakesh Kumar (Alumni, Batch 1991)**: Insipiration speech to new young 1st year students.
 - Felicitation of Guests.
 - Finance talk by Finance expert
@@ -92,4 +92,4 @@ The **Induction Program 2025** is designed to welcome new students, foster a sen
     * He is so much great personality .
 ###  🕣 11:00 AM - 01:00 PM   
 * Today we have expert lecture by **Dr. Priya Darshani Madam** on **Universal Human Values**
-   * Mam told us about 
+   * Mam told us about our priorities in 
