@@ -53,11 +53,10 @@ The **Induction Program 2025** is designed to welcome new students, foster a sen
 
 ###  🕣 9:30 AM - 10:30 AM
 * There was a **English Proficiency Test**
-    * It went well.
 
 ###  🕣 10:30 AM - 11:30 AM
 * There was a **Mathematics Proficiency Test**
-    * It went well.
+
 ###  🕣 11:30 AM - 01:00 PM
 * It was a break for students
 ###  🕣 01:00 PM - 02:00 PM
@@ -92,4 +91,7 @@ The **Induction Program 2025** is designed to welcome new students, foster a sen
     * He is so much great personality .
 ###  🕣 11:00 AM - 01:00 PM   
 * Today we have expert lecture by **Dr. Priya Darshani Madam** on **Universal Human Values**
-   * Mam told us about our priorities in 
+   * Mam speak to us about oue true goal . WHy we are doing our study ? what we all truly want ?
+   * She told us that our first pirority in our life should be **understanding each others** . By understanding each other we can feel there emotion & behaviour.
+   * Then our second priority should be our **relationships** with family , friends & roommates . Without relationship a person never lives a happy life.
+   * Then our third priority should be **Physical facility** like money , cars , house etc. 
