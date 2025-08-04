@@ -115,4 +115,7 @@ Expert Lecture by **Dr. Priya Darshani Madam** on **Universal Human Values**
 
 ###  🕣 9:30 AM - 10:30 AM
 **P2P Lecture**
-- We have our P2P Lecture by  our 3rd year Senior 
+- We have our P2P Lecture by our 3rd year Senior.
+- We got to learn basics of c++ coding language. 
+- We learn how to write its syntax & its some common mistakes.
+  
