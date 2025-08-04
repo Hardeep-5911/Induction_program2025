@@ -22,17 +22,26 @@ The **Induction Program 2025** is designed to welcome new students, foster a sen
 > The warmth of tea and delightful snacks helped us connect and energize for the day ahead.
 
 ### 🎤 10:00 AM Onwards | Inaugural Ceremony
-- Registration at the auditorium entrance.
-- Inspirational speeches:
-    - **Mr. Harsimarn Singh**: Insights on college & its achievements.
-    - **Dr. Harpreet Kaur Grewal (HoD, Applied Science)**: Introduction to our department.
-    - **Dr. Sehijpal Singh (Principal)**: Highlighted the college’s excellence, global ties, and notable achievements on its **70th year of excelence** .
-    - **Ravinder Garg (Chief Engineer, Municipal Corporation, Ludhiana)** (Chief Guest): Motivate student to dream big, work hard, and never give up on their goals, reminding them that success is built on perseverance, passion, and a positive mindset.
-    - **Rakesh Kumar (Alumni, Batch 1991)**: Insipiration speech to new young 1st year students.
-- Felicitation of Guests.
-- Finance talk by Finance expert
-- Lunch followed by department visit & mentorship program.
-    - Explored labs, classrooms, and learned about college clubs and placement opportunities.
+- Registration began at the auditorium entrance, setting the tone for a day filled with energy and excitement.<br>
+
+_🌟 Inspirational Speeches_
+- **Mr. Harsimarn Singh** shared valuable insights into the college’s journey and its proud achievements, giving us a sense of belonging and pride.
+- **Dr. Harpreet Kaur Grewal (HoD, Applied Science)** warmly introduced our department, highlighting its academic strength and supportive environment.
+- **Dr. Sehijpal Singh (Principal)** delivered a powerful address, celebrating the college’s 70 years of excellence. He spoke about its global collaborations, academic milestones, and the legacy we’re now part of.
+- **Er. Ravinder Garg (Chief Engineer, Municipal Corporation, Ludhiana)**, our Chief Guest, inspired us to dream big, work hard, and stay positive. His message was clear: success comes from perseverance, passion, and purpose.
+- **Mr. Rakesh Kumar (Alumni, Batch 1991)** gave a heartfelt speech to the new batch, encouraging us to embrace every opportunity and make the most of our college journey.<br>
+
+_🎖️ Felicitation Ceremony_
+- All distinguished guests were honored for their contributions and presence, adding grace to the event.<br>
+
+_💰 Finance Talk_
+- A finance expert shared practical insights on managing finances as students, helping us understand budgeting, saving, and planning for the future.<br>
+
+_🍽️ Lunch & Mentorship Program_
+- After a delicious lunch, we explored the campus through a department visit.
+- We toured the labs, classrooms, and discovered various college clubs, mentorship opportunities, and placement support systems.
+- It was a great chance to connect with seniors and faculty, and to understand how the college supports our growth both academically and personally.
+
 
 ![Inaugural Ceremony](https://github.com/user-attachments/assets/b18be240-b252-4dd7-988c-b3dcbb761ca5)
 
@@ -81,17 +90,24 @@ The **Induction Program 2025** is designed to welcome new students, foster a sen
 ## Day 3 Highlights ✨
 
 ###  🕣 9:00 AM - 11:00 AM
- * Today we have a great expert lecture by **Dr. Jaswinder singh 'Jaswins'**.
-    * Today was very excited lecture for me as I have watching Dr. JAswinder singh videos from so long time.
-    * Today I get chance to watch him on stage live .
-    * He taught us so many interesting things about Math & Science.
-    * He taught us nature is full of mysteries , science & math.
-    * He taught us about GOD and MATH.
-    * We learn so many new things
-    * He is so much great personality .
+Expert Lecture by Dr. Jaswinder Singh 'Jaswins'
+- Today was a truly exciting moment for me—I’ve been watching Dr. Jaswinder Singh’s videos for a long time, and finally got the chance to see him live on stage.
+- His lecture was filled with fascinating insights into Math and Science, showing how deeply they are woven into the fabric of nature.
+- He spoke about how nature is full of mysteries, and how science and mathematics help us uncover them.
+- One of the most thought-provoking parts was when he connected God and Math, showing how logic and spirituality can coexist.
+- I learned so many new things today—his way of teaching is powerful and inspiring.
+- Dr. Jaswinder Singh is truly a remarkable personality, full of wisdom and energy.
+
 ###  🕣 11:00 AM - 01:00 PM   
-* Today we have expert lecture by **Dr. Priya Darshani Madam** on **Universal Human Values**
-   * Mam speak to us about oue true goal . WHy we are doing our study ? what we all truly want ?
-   * She told us that our first pirority in our life should be **understanding each others** . By understanding each other we can feel there emotion & behaviour.
-   * Then our second priority should be our **relationships** with family , friends & roommates . Without relationship a person never lives a happy life.
-   * Then our third priority should be **Physical facility** like money , cars , house etc. 
+Expert Lecture by Dr. Priya Darshani Madam on Universal Human Values
+- Madam spoke to us about our true goals in life—why we study, what we truly seek, and what makes life meaningful.
+- She emphasized that our first priority should be understanding each other—only then can we truly connect and empathize with others.
+- Our second priority should be our relationships—with family, friends, and those around us. Without strong relationships, happiness is incomplete.
+- Our third priority should be physical facilities—like money, cars, and houses. These are important, but they should never come before human connection.
+- Her words helped me reflect deeply and understand what truly matters in life.
+
+## My Reflections 📝
+
+> "We explore the universe through science, we connect through values, and we grow through understanding."<br>
+– Hardeep Singh
+
