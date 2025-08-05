@@ -111,7 +111,7 @@ Expert Lecture by **Dr. Priya Darshani Madam** on **Universal Human Values**
 ## My Reflections 📝
 
 > "We explore the universe through science, we connect through values, and we grow through understanding."<br>
-– Hardeep Singh
+_– Hardeep Singh_
 
 ## Day 4 Highlights ✨
 
@@ -137,5 +137,32 @@ Expert Lecture by **Dr. Priya Darshani Madam** on **Universal Human Values - 2**
 - Right understanding is the foundation for resolving individual concerns, ensuring responsible behavior, and achieving lasting happiness.
 - Living in harmony at all levels—Self, Family, Society, and Nature—is the key to fulfilling basic human aspirations and creating a prosperous, peaceful existence.
 
+###  🕣 02:30 PM - 03:30 PM
+Session by **Causmic Club**
+- We attended a session conducted by Causmic Club.
+- The session began with an introduction to the club and a presentation of its achievements.
+- This was followed by a musical performance.
+- The team also shared a brief and helpful explanation on how to choose a good laptop.
+- Later, there were various engaging activities including poetry recitation, singing, and more.
 
+## My Reflections 📝
+> "Day 4 was a balanced mix of technical learning, self-reflection, and creative engagement—each session deepened my understanding and broadened my perspective."<br>
+_- Hardeep Singh_
 
+## Day 5 Highlights ✨
+
+### 🕣 10:30 AM – 11:30 AM
+BEEE Lecture by **Prof. Harminder Kaur (ECE)**
+- The session began with student introductions.
+- We explored the BEEE syllabus and its core topics.
+- We also discovered new insights about our college and its academic structure.
+### 🕣 11:30 AM – 12:30 PM
+Chemistry Lecture by **Prof. Mandeep Kaur**
+- We reviewed the syllabus and understood the exam marking scheme.
+- The professor explained the chemistry subject marks distribution.
+- We discussed basic chemistry concepts, types of chemistry, and key terminologies.
+
+###  🕣 02:00 PM - 04:30 PM
+- There was submition of application and photographs for new student's id card
+
+ ## Day 6 Highlights ✨
