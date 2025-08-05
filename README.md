@@ -98,6 +98,9 @@ Expert Lecture by **Dr. Jaswinder Singh 'Jaswins'**
 - I learned so many new things today—his way of teaching is powerful and inspiring.
 - Dr. Jaswinder Singh is truly a remarkable personality, full of wisdom and energy.
 
+![IMG_20250805_064019](https://github.com/user-attachments/assets/db677512-b7fa-45b5-9c18-bae5f3e47206)
+
+
 ###  🕣 11:00 AM - 01:00 PM   
 Expert Lecture by **Dr. Priya Darshani Madam** on **Universal Human Values**
 - Madam spoke to us about our true goals in life—why we study, what we truly seek, and what makes life meaningful.
@@ -115,7 +118,19 @@ Expert Lecture by **Dr. Priya Darshani Madam** on **Universal Human Values**
 
 ###  🕣 9:30 AM - 10:30 AM
 **P2P Lecture**
-- We have our P2P Lecture by our 3rd year Senior.
-- We got to learn basics of c++ coding language. 
-- We learn how to write its syntax & its some common mistakes.
-  
+- We had our P2P Lecture by our 3rd year Senior.
+- We learned the basics of c++ coding language. 
+- We were taught how to write its syntax and identify common mistakes.
+- We also explored procedures to solve specific problems using C++.
+
+###  🕣 10:30 AM - 11:30 AM
+**English Lecture**  
+- We had our English lecture conducted by Prof. Manjot Kaur.
+- We began with a brief round of introductions.
+- Then, we discussed why we had chosen CSE as our core branch.
+- We also talked about our strengths, weaknesses, and ways to overcome them.
+
+###  🕣 12:30 PM - 02:30 PM
+Expert Lecture by **Dr. Priya Darshani Madam** on **Universal Human Values - 2**
+- We learned how we can get **continuity of happiness**.
+- We should do **process of self Exploration**.
