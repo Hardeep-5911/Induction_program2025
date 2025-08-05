@@ -66,8 +66,6 @@ _🍽️ Lunch & Mentorship Program_
 ###  🕣 10:30 AM - 11:30 AM
 * There was a **Mathematics Proficiency Test**
 
-###  🕣 11:30 AM - 01:00 PM
-* It was a break for students
 ###  🕣 01:00 PM - 02:00 PM
 Scholarship Awareness Session by  **[Buddy4study](https://www.buddy4study.com/)**
 - It was hosted by **Mr. Manshish Kumar & Mr. Manoj Kumar** representive from Buddy4study.
@@ -107,6 +105,7 @@ Expert Lecture by **Dr. Priya Darshani Madam** on **Universal Human Values**
 - She emphasized that our first priority should be understanding each other—only then can we truly connect and empathize with others.
 - Our second priority should be our relationships—with family, friends, and those around us. Without strong relationships, happiness is incomplete.
 - Our third priority should be physical facilities—like money, cars, and houses. These are important, but they should never come before human connection.
+- It is important to maintain a balanced approach toward all three areas.
 - Her words helped me reflect deeply and understand what truly matters in life.
 
 ## My Reflections 📝
@@ -132,5 +131,11 @@ Expert Lecture by **Dr. Priya Darshani Madam** on **Universal Human Values**
 
 ###  🕣 12:30 PM - 02:30 PM
 Expert Lecture by **Dr. Priya Darshani Madam** on **Universal Human Values - 2**
-- We learned how we can get **continuity of happiness**.
-- We should do **process of self Exploration**.
+- Human aspirations of happiness and prosperity are continuous and require more than just physical facilities—they need right understanding and fulfilling relationships.
+- Human being is a co-existence of Self and Body, with distinct needs: the Self seeks harmony and happiness, while the Body requires physical facilities.
+- Imagination guided by natural acceptance leads to harmony within, while imagination driven by preconditioning or sensation results in conflict and unresolved concerns.
+- Right understanding is the foundation for resolving individual concerns, ensuring responsible behavior, and achieving lasting happiness.
+- Living in harmony at all levels—Self, Family, Society, and Nature—is the key to fulfilling basic human aspirations and creating a prosperous, peaceful existence.
+
+
+
