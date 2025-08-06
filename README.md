@@ -1,3 +1,4 @@
+
 # Induction Program 2025🚀
 
 ## About Me
@@ -181,8 +182,27 @@ Maths lecture by **Prof. gangandeep kaur**
 - We also discussed about math assignment.
 
 ###  🕣 12:30 PM - 02:00 PM
-Speech by nankana sahib trust member  **S. Gurcharan Singh Grewal, Secretary- SGPC**
-- He delivered a very motivational speech to all of us.
-- He told us about his struggle story.
-- He discuss with us how he want to become a engineer at GNDEC but ended up a politician , but he always helps the needy students. 
-- He motivated us to study more and rise in the sky.
+Speech by **S. Gurcharan Singh Grewal, Secretary- SGPC**
+- He delivered a powerful and motivational address that inspired all attendees.
+- He recounted his personal struggles and journey.
+- He explained how he initially wanted to become an engineer at GNDEC but ultimately entered politics.
+- Despite the career shift, he remained dedicated to helping needy students.
+- He urged everyone to study hard and aim for success, encouraging them to "rise in the sky."
+- He emphasized that students were fortunate to have secured admission at GNDEC.
+- He expressed pride in seeing young minds full of potential and ambition.
+- He urged students to not only excel in academics but also to become responsible citizens who give back to society.
+
+###  🕣 02:00 PM - 04:00 PM
+lecture by **Dr. Lakhvir Singh Khana**
+- He delivered a speech regarding **CML -(Center for multi faceted learning).**
+- He told us CML deals with techical events , skill building events and personality build up.
+- If anyone want any technical or professional help , they helped them.
+- They help them in their communication skills , personality builds up etc.
+- He also told us about online program from where we can learn from IIt faculty and get extra certification.
+- He told us about **"SWAYAM"** & **"NPTEL"**.
+- These certification will help us in our job placement.
+- If we have any interest in technical things then we should join CML.
+
+## My Reflections 📝
+> _"Day 6 was a powerful blend of academic insight and personal inspiration — from lectures on chemistry and maths to a motivational speech that ignited ambition and introduced us to growth platforms like CML and SWAYAM."_<br>
+- _Hardeep Singh_
