@@ -166,3 +166,23 @@ Chemistry Lecture by **Prof. Mandeep Kaur**
 - There was submition of application and photographs for new student's id card
 
  ## Day 6 Highlights ✨
+
+###  🕣 9:30 AM - 10:30 AM
+Chemistry Lecture by **Prof. Mandeep Kaur**
+- We discussed about chemistry assignments and its first chapter.
+- We came to know abot chemistry lab work.
+- We also discussed how to score good in chemistry.
+
+### 🕣 10:30 AM – 11:30 AM
+Maths lecture by **Prof. gangandeep kaur**
+- The session began with student introductions.
+- We explored the math syllabus and its core topics.
+- We discussed about marks scheme of math.
+- We also discussed about math assignment.
+
+###  🕣 12:30 PM - 02:00 PM
+Speech by nankana sahib trust member  **S. Gurcharan Singh Grewal, Secretary- SGPC**
+- He delivered a very motivational speech to all of us.
+- He told us about his struggle story.
+- He discuss with us how he want to become a engineer at GNDEC but ended up a politician , but he always helps the needy students. 
+- He motivated us to study more and rise in the sky.
