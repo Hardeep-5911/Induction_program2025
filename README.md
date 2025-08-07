@@ -229,8 +229,27 @@ Lecture by **Dr. Amit Kamara**(incharge-DMC)
 - THey told us that this club is not like other this will help us in building a new skill whinch will be very benificial in future.
 
 ### 🕣 11:30 AM – 12:30 PM
-Lectture by **Dr. Randhir Singh** on **conduct of examination**
+Lecture by **Dr. Randhir Singh** on **conduct of examination**
 - Sir start the lecture with a brief introduction about him and examination.
 - He told us about the subject wise marks distribution and required number for clearing exam .
 - He told us we should have to mantain 75% attendence in every subject to give the exam.
-- 
+- If we detained from any subject we have to pay 15k Rs in order to study that subject again.
+- We should take our attendence and study seriously to score good marks and to become successful.
+- He also told us about some other exam rule which is very benificial for us .
+
+### 🕣 01:30 PM – 02:30 PM  
+BEEE Lecture by **Prof. Harminder Kaur (ECE)**
+- This was are 2nd Lecture of BEEE.
+- We satrt with the introduction of our first chapter.
+- we discuss the important terms of first chapter and understand them.
+- Our teacher help us to understand it easily and properly.
+
+### 🕣 02:30 PM – 03:30 PM 
+**P2P** lecture by seniors
+- We had our 2nd lecture of P2P.
+- We discussed about some more concept of c programming language .
+- We do if else statements .
+
+## My Reflections 📝
+> _"Today’s sessions introduced us to campus facilities, clubs, and examination rules, while also building foundational skills in BEEE and C programming. The DMC lecture stood out for its focus on digital creativity and future-ready opportunities."_ <br>
+ _Hardeep Singh_
