@@ -166,7 +166,7 @@ Chemistry Lecture by **Prof. Mandeep Kaur**
 ###  🕣 02:00 PM - 04:30 PM
 - There was submition of application and photographs for new student's id card
 
- ## Day 6 Highlights ✨
+## Day 6 Highlights ✨
 
 ###  🕣 9:30 AM - 10:30 AM
 Chemistry Lecture by **Prof. Mandeep Kaur**
@@ -183,7 +183,7 @@ Maths lecture by **Prof. gangandeep kaur**
 
 ###  🕣 12:30 PM - 02:00 PM
 Speech by **S. Gurcharan Singh Grewal, Secretary- SGPC**
-- He delivered a powerful and motivational address that inspired all attendees.
+- Sir delivered a powerful and motivational address that inspired all attendees.
 - He recounted his personal struggles and journey.
 - He explained how he initially wanted to become an engineer at GNDEC but ultimately entered politics.
 - Despite the career shift, he remained dedicated to helping needy students.
@@ -194,7 +194,7 @@ Speech by **S. Gurcharan Singh Grewal, Secretary- SGPC**
 
 ###  🕣 02:00 PM - 04:00 PM
 lecture by **Dr. Lakhvir Singh Khana**
-- He delivered a speech regarding **CML -(Center for multi faceted learning).**
+- Sir delivered a speech regarding **CML -(Center for multi faceted learning).**
 - He told us CML deals with techical events , skill building events and personality build up.
 - If anyone want any technical or professional help , they helped them.
 - They help them in their communication skills , personality builds up etc.
@@ -204,5 +204,33 @@ lecture by **Dr. Lakhvir Singh Khana**
 - If we have any interest in technical things then we should join CML.
 
 ## My Reflections 📝
-> _"Day 6 was a powerful blend of academic insight and personal inspiration — from lectures on chemistry and maths to a motivational speech that ignited ambition and introduced us to growth platforms like CML and SWAYAM."_<br>
-- _Hardeep Singh_
+> _"Day 6 was a powerful blend of academic insight and personal inspiration — from lectures on chemistry and maths to a motivational speech that ignited ambition and introduced us to growth platforms like CML and SWAYAM."_<br>D
+ _Hardeep Singh_
+
+ ## Day 7 Highlights ✨
+
+###  🕣 9:30 AM - 10:30 AM
+lecture by **Dr. Parminder Singh**(Dean-Student welfare)
+- Sir delivered a speech with brief introduction about all facilities provided in college campus.
+- He discuss with us about the facility we get in hostel like wifi connectivity and washing machines.
+- He discuss with us about sport facilities in our college & about its competition.
+- We got know about all clubs in our college and cultural acitivities.
+- We also know about all the scholorships in our college.
+- From this lecture we got to know all about our college facilities.
+
+### 🕣 10:30 AM – 11:30 AM
+Lecture by **Dr. Amit Kamara**(incharge-DMC)
+- Sir start the lecture by introducing himself and **DMC - Digital Marketing Club**.
+- He told us about DMC club and it works in campus. DMC club manage all social platform of GNDEC and post all about latest events.
+- DMC also conduct competition for students with marketing , editing skills and they also recurit them and teach them so many new skills.
+- They are also trying to send students to internships from this or next year.
+- They cover all the events in the college and time to time update all the social handels.
+- We can also make our own reels , videos & if they are good then they can upload our video on college official social handel.
+- THey told us that this club is not like other this will help us in building a new skill whinch will be very benificial in future.
+
+### 🕣 11:30 AM – 12:30 PM
+Lectture by **Dr. Randhir Singh** on **conduct of examination**
+- Sir start the lecture with a brief introduction about him and examination.
+- He told us about the subject wise marks distribution and required number for clearing exam .
+- He told us we should have to mantain 75% attendence in every subject to give the exam.
+- 
