@@ -207,7 +207,7 @@ lecture by **Dr. Lakhvir Singh Khana**
 > _"Day 6 was a powerful blend of academic insight and personal inspiration — from lectures on chemistry and maths to a motivational speech that ignited ambition and introduced us to growth platforms like CML and SWAYAM."_<br>D
  _Hardeep Singh_
 
- ## Day 7 Highlights ✨
+## Day 7 Highlights ✨
 
 ###  🕣 9:30 AM - 10:30 AM
 lecture by **Dr. Parminder Singh**(Dean-Student welfare)
@@ -252,4 +252,28 @@ BEEE Lecture by **Prof. Harminder Kaur (ECE)**
 
 ## My Reflections 📝
 > _"Today’s sessions introduced us to campus facilities, clubs, and examination rules, while also building foundational skills in BEEE and C programming. The DMC lecture stood out for its focus on digital creativity and future-ready opportunities."_ <br>
+ _Hardeep Singh_
+
+## Day 8 Highlights ✨
+
+###  🕣 9:00 AM - 10:30 AM
+Expert lecture by **Mrs. Shaffy Makkar** on **"Millets Super Food"**
+- We began our lecture by discussing our daily food schedule. Then we discuss some of the problem we face in our body daily.
+- Ma'am explained what millets are. She mentioned that although millets were commonly eaten in earlier times, they are rarely consumed nowadays.
+- Millets are considered superfoods because they provide essential nutrients that help us grow strong and stay healthy.
+- Nowdays when anyone consum them hey face problems like bloating , constipation because they dont know how to properly cook them .- Nowadays, people often experience issues like bloating and constipation when they consume millets, mainly because they are unfamiliar with the correct methods of preparing and cooking them.
+- She told us the correct methods to cook them and aldo how to eat them .
+- Many common diseases around the world can potentially be managed or prevented through the consumption of millets, thanks to their rich nutritional profile .
+- They also helps us in study as they keeps our body active and energetic.
+- Health conditions such as diabetes and even certain types of cancer may be positively influenced by the regular consumption of millets, due to their antioxidant properties and ability to regulate blood sugar levels.
+
+###  🕣 10:30 AM - 12:00 PM
+Maths lecture by **Prof. gangandeep kaur**
+- We began by discussing key mathematical terms to lay the foundation for our first lecture.
+- Ma'am introduced several fascinating concepts that we later recognized as being reflected in real-world situations.
+- Mathematics is deeply embedded in everyday life—from simple actions to complex systems, math plays a role in everything around us.
+- In addition to math, we also explored social values, including how to live harmoniously in society and understand our responsibilities as individuals.
+
+## My Reflections 📝
+> _"Today’s lectures helped me understand how both nutrition and mathematics shape our daily lives and empower us to live healthier, more responsible, and informed lives."_ <br>
  _Hardeep Singh_
