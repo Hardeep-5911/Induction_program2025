@@ -277,3 +277,14 @@ Maths lecture by **Prof. gangandeep kaur**
 ## My Reflections 📝
 > _"Today’s lectures helped me understand how both nutrition and mathematics shape our daily lives and empower us to live healthier, more responsible, and informed lives."_ <br>
  _Hardeep Singh_
+
+## Day 9 Highlights ✨
+- Today began with the distribution of our proficiency test marks during the first lecture. The instructor also reviewed common mistakes made in the test, helping us understand where we went wrong and how to improve.
+- Following that, we had our Basic Electrical and Electronics Engineering (BEEE) lecture, where we started the first chapter. Key terms and definitions were introduced and discussed in detail, laying the foundation for the subject.
+- After the theory session, we visited the BEEE lab, which was an exciting experience. We observed various electrical components and setups for the first time. The instructor emphasized essential safety precautions that must be followed while working in the lab. We were also instructed to begin preparing our project file for upcoming practicals.
+- Later, we attended our Mathematics lecture conducted by Prof. D. S. Pathania. He explained the syllabus structure and guided us on recommended resources for practicing and studying mathematical concepts effectively.
+Overall, it was a productive and insightful day filled with new learnings and experiences across both theory and practical domains.
+
+## Day 10 Highlights ✨
+- Today we began with our P2P lecture by senior where we got to know more about c++ programming language. After that we had programming for problem solving lecture by **Er. Paaramveer kaur** . We know about computer basic and its important components . We also discuss some important terms .
+- After that we had our **Professional English Communication** lecture by **Manjot Kaur** . We discuss about marks scheme and its syllabus. After then , we had our BEEE T . In which we dicuss many numericals which we had studied till now. With this our day ended . 
